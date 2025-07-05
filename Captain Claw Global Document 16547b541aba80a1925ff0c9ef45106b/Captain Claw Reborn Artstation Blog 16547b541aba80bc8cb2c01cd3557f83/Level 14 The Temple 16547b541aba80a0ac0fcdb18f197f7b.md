@@ -1,1 +1,0 @@
-# Level 14:  The Temple
